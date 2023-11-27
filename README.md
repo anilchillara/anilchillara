@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @anilchillara
 - 👀 I’m interested in Technology that makes our lives better
-- 🌱 I’m currently learning American Sign Language (https://www.lifeprint.com/)
+- 🌱 I’m currently learning American Sign Language (https://www.lifeprint.com/) & Braille (https://nfb.org/resources/braille-resources)
 - 💞️ I’m looking to collaborate on research projects
 - 📫 Reach me at Anil.Chillara@outlook.com
 
